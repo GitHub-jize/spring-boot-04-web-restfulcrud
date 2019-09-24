@@ -2,5 +2,4 @@
 # idea
 # idea-Sping
 
-方法
-hilhi
+i hava see you
